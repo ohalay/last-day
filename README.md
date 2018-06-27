@@ -1,4 +1,4 @@
-# Office Architect :o2: :a: # 
+# Office Architect :o2::a: # 
 
 This is my last day :disappointed: I am writing letters badly
 
